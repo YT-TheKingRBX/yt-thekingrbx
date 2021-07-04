@@ -1,5 +1,13 @@
 ### Hi there 👋
 
+### - 🔭 I’m currently working on nothing rn
+### - 🌱 I’m currently learning not much
+### - 👯 I’m looking to collaborate on nothing rn
+### - 🤔 I’m looking for help with nothing rn
+### - 💬 Ask me about stuff
+### - 📫 How to reach me: Twitter: Emails:
+### - 😄 Pronouns: They/Them
+### - ⚡ Fun fact: i am me
 <!--
 **YT-TheKingRBX/yt-thekingrbx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
