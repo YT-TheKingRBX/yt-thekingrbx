@@ -5,7 +5,7 @@
 ### - 👯 I’m looking to collaborate on nothing rn
 ### - 🤔 I’m looking for help with nothing rn
 ### - 💬 Ask me about stuff
-### - 📫 How to reach me: Twitter: Emails:
+### - 📫 How to reach me: Twitter: @YT_KingRBX; Emails: jroger19225@gmail.com, SUBJECT: Found you on Github.com!
 ### - 😄 Pronouns: They/Them
 ### - ⚡ Fun fact: i am me
 <!--
